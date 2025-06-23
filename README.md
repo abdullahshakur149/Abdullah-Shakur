@@ -2,7 +2,7 @@
 
 Software Engineer | Full-Stack Web Developer | Tech Enthusiast  
 Peshawar, Pakistan | mabdullahshakur@gmail.com | +92 3349196224  
-[LinkedIn](#) • [GitHub](#)
+[LinkedIn](https://www.linkedin.com/in/abdullah-shakur-951054246/) 
 
 ---
 
